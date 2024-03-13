@@ -1,0 +1,1 @@
+https://ravijhadynamic.netlify.app/
